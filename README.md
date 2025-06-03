@@ -1,0 +1,1 @@
+este es mi biografia, con las cosas que me gustan, como mis comidas favorita y no fvoritas, mis artistas favoritos, mis mejores amigos y amigas, con mis hobbies y mis redes favorita, mis imagenes favoritas y con un video musical
